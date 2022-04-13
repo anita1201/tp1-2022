@@ -1,11 +1,13 @@
 # TP1-2022
 # Integrantes
 
-Videla Ana Clara <clara.castilla@gmail.com>
+Videla Ana Clara 
 
-Sanchez Aldana <https://www.linkedin.com/in/aldanavsanchez/?originalSubdomain=ar>
+Sanchez Aldana 
 
 Torrent Sol **<sol.carolina.torrent@hotmail.com>**
+
+Comadrán Amparo 
 
 # Materia
 
