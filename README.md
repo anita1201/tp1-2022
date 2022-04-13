@@ -1,13 +1,13 @@
 # TP1-2022
 # Integrantes
 
-Videla Ana Clara 
+Videla Ana Clara anitavidela200112@gmail.com
 
-Sanchez Aldana 
+Sanchez Aldana asanchezthea@gmail.com
 
 Torrent Sol **<sol.carolina.torrent@hotmail.com>**
 
-Comadrán Amparo 
+Comadrán Amparo amparocomadranp@gmail.com
 
 # Materia
 
