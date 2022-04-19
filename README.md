@@ -5,7 +5,7 @@ Videla Ana Clara anitavidela200112@gmail.com
 
 Sanchez Aldana asanchezthea@gmail.com
 
-Torrent Sol **<sol.carolina.torrent@hotmail.com>**
+Torrent Sol soltorrentgiri@gmail.com
 
 Comadrán Amparo amparocomadranp@gmail.com
 
